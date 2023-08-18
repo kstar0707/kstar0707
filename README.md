@@ -24,7 +24,7 @@ As a creative & passionate developer, and fast learner with detail and high qual
   
 <!-- ## 👨‍💻 Currently working in Kokeshi MV [Website](https://www.kokeshimv.com), [Twitter](https://twitter.com/KokeshiMv), and [Discord](https://discord.gg/kokeshimv) as Developer. -->
 
-![](https://minionicious.files.wordpress.com/2016/08/kevin-being-knighted-by-queen-elizabeth.png)
+![](https://minionicious.files.wordpress.com/2016/08/josh-scanning-his-butt.png)
 <!-- ![CWS](https://user-images.githubusercontent.com/89365150/202695915-8e27499d-c325-49e8-8d1e-9e8ccd88d673.png) -->
 <!-- ![KokeshiMV](https://user-images.githubusercontent.com/89365150/231889036-afd7e3e8-ff3b-4d10-93af-1b346c43bc73.png) -->
 
