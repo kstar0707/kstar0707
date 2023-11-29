@@ -3,11 +3,11 @@
 
  
 - 🤝 💖 👪 Follow Me via Git. ⚽ 🥰 🏆
-- Contact to me: <span style="font-size:30pt">senior19970707@gmail.com</span>
-- You can find me here: <span style="font-size:30px;" size="30px"><a href="https://join.skype.com/invite/q8E0Iw8DG13d">Skype</a></span> <span>  &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="#">Prince1997</a>(Discord)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="#">@hades701</a>(Telegram)</span>
+- Contact to me: <span style="font-size:30pt">prince.kzear1@gmail.com</span>
+- You can find me here: <span style="font-size:30px;" size="30px"><a href="https://join.skype.com/invite/q8E0Iw8DG13d">Skype</a></span> <span>  &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="+1 609 857 1986">Phone Number</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="#">@hades701</a>(Telegram)</span>
   
 <h2 align="center">
-  <i color="red">8 years of experience with <b>Web/Mobile App development and 3 years of Blockchain Space.</i>
+  <i color="red">7 years of experience with <b>Web/Mobile App development and 3 years of Blockchain Space.</i>
 <br />
 </h2>
 <h4>   
