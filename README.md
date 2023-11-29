@@ -1,6 +1,4 @@
-### <center><h4>Hi there! Based on 7 years of full-stack development experience for global businesses, i provide the technical expertise you desire.
-Please add me via skype.
-thank you</h4></center>
+### <center><h4>Hi there! Based on 7 years of full-stack development experience for global businesses, i provide the technical expertise you desire.</h4></center> <h1> Please add me via skype.thank you</h1>
 
  
 - 🤝 💖 👪 Follow Me via Git. ⚽ 🥰 🏆
