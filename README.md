@@ -1,5 +1,6 @@
-### Hi there! 👋 <span>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</span>![](https://komarev.com/ghpvc/?username=best-lucky1030&color=yellow)
-
+### <center><h4>Hi there! Based on 7 years of full-stack development experience for global businesses, i provide the technical expertise you desire.
+Please add me via skype.
+thank you</h4></center>
 
  
 - 🤝 💖 👪 Follow Me via Git. ⚽ 🥰 🏆
