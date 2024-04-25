@@ -1,6 +1,6 @@
 
 <h1 align="center">Hi 👋, I'm kstar0707</h1><br>
-<h3 align="center">Cross-Platform & Native App | Web | AI Developer</h3>
+<h3 align="center">Full-Stack Engineer</h3>
 <h3 align="center">My Skype Address: live:.cid.4bbcfa7afbf5dea8<br/> Please add me thanks</h3>
 <h4 align="center">I am a dedicated, reliable and responsible developer who always focuses on credit.<br/>
 “Money is necessary in life, but the most important is Good Relationship, 
