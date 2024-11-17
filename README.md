@@ -1,5 +1,5 @@
 
-<h1 align="center">Hi 👋, I'm kstar0707</h1><br>
+<h1 align="center">Hi 👋</h1><br>
 <h4 align="center">I am a dedicated, reliable and responsible developer who always focuses on credit.<br/>
 “Money is necessary in life, but the most important is Good Relationship, 
 Trusting and Top skill, not money” <br/> This is my working slogan.
