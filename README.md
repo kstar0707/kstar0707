@@ -4,7 +4,6 @@
 “Money is necessary in life, but the most important is Good Relationship, 
 Trusting and Top skill, not money” <br/> This is my working slogan.
 <br /> contact me: prince.kzear1@gmail.com, skype: live:.cid.4bbcfa7afbf5dea8 </h4>
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=kstar0102&label=Profile%20views&color=0e75b6&style=flat" alt="kstar0102" /> </p>
 <div align="center" dir="auto">
 <img src="https://5.imimg.com/data5/TR/OQ/MY-24528926/mobile-app-development-services-500x500.jpg" height="500" style="max-width: 100%; display: inline-block;" data-target="animated-image.originalImage">
 </div>
